@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Transmit for macOS utility with Transmit for macOS exclusive Utility: file-encryption & remote-editing. Featuring file-encryption and remote-editing, it's the
 
 
 
